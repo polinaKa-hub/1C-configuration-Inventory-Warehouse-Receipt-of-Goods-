@@ -1,0 +1,1 @@
+# 1C-configuration-Inventory-Warehouse-Receipt-of-Goods-
